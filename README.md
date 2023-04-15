@@ -22,6 +22,6 @@
 
 Apaixonado por inovação e tecnologia.
 
-## E-mail para contato
+## E-mail para contato:
 
 - victor.oliveira20@icloud.com <br />
